@@ -1,6 +1,6 @@
 # Akira8938
 
-## Conecete=se comigo
+## Conecte=se comigo
 
 ## Habilidades
 
